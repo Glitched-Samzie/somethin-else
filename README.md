@@ -5,7 +5,11 @@ Hello there, you may call me "Sam" for short..
 A male and sorta...gay-ish,"He/Them" as my pronouns.
 
 
---- 
+
+https://user-images.githubusercontent.com/109411305/202842083-3b91878b-d165-49de-a1f9-7db4210ef263.mp4
+
+
+
 [∆]
 
 Things to know about me:
@@ -16,17 +20,19 @@ Things to know about me:
 
 ![IMG_20220713_211621](https://user-images.githubusercontent.com/109411305/202390699-76452d73-eafd-463d-89d6-62b69420a1e0.jpg)
 
----
+
 [✧⁠]
 
 Favorite characters in each fandom I'm in:
->- Bumblebee,[Transformers]
+>- Bumblebee-{⭐},[Transformers]
 >- Greninja and Flareon,[Pokémon]
->- Bendy and Samuel "Sammy" Laurence,[BATIM/BATDR]
+>- Bendy and Samuel "Sammy" Laurence-{⭐},[BATIM/BATDR]
+
+(⭐= IRL/most favorite/highest kin)
 
 ![C1D2784C-C5FB-49BE-B2AE-D7B2CE7BEA06](https://user-images.githubusercontent.com/109411305/202388674-54ce611d-7ccd-4e3c-b349-aee625dd713e.gif)
 
----
+
 Things not to do when I'm around in games:
 1) Do not tell "your mom" jokes..
 2) Do not become SERIOUSLY CRINGE as hell..
@@ -36,7 +42,7 @@ Things not to do when I'm around in games:
 ![rip-juice-cry](https://user-images.githubusercontent.com/109411305/202390574-1d719ba7-8594-46f7-b79a-9b490f611e5e.gif)
 
 
----
+
 
 
 Yeah, that's all about me..please be respectful towards anyone including me..
@@ -50,6 +56,10 @@ Yeah, that's all about me..please be respectful towards anyone including me..
 
 
 ..congrats by reading all of this..I guess..
+
+
+
+https://user-images.githubusercontent.com/109411305/202842243-e72f66d4-0201-4db6-8432-648f3e5b2a84.mov
 
 
 
