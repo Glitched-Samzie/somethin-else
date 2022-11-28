@@ -25,7 +25,7 @@ Things to know about me:
 
 Favorite characters in each fandom I'm in:
 >- Bumblebee-{⭐},[Transformers]
->- Greninja and Flareon,[Pokémon]
+>- Greninja-{⭐} and Flareon,[Pokémon]
 >- Bendy and Samuel "Sammy" Laurence-{⭐},[BATIM/BATDR]
 
 (⭐= IRL/most favorite/highest kin)
